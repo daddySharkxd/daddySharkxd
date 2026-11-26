@@ -28,6 +28,6 @@ Some Projects I've Worked On
 
 Let's Connect!
 - GitHub: [@daddySharkxd](https://github.com/daddySharkxd)
-- Email: your-email@example.com
+- Email: emilioogardo562@gmail.com
 
 Thanks for stopping by! Feel free to check out my projects. 
